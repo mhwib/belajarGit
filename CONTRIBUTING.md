@@ -1,0 +1,1 @@
+Aturan-aturan dalam berkontribusi
